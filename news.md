@@ -223,3 +223,15 @@ They use special software to intelligently interpolate the missing values.
 self esteem/ɪˈstiːm/
 belief or confidence in your own ability and value.
 eg: The compliments she received after the presentation boosted her self-esteem.
+
+
+curfew
+a rule that everyone must stay at home between particular times
+He was shot for breaking the curfew.
+
+epicenter/ˈep.ɪ.sen.tər/
+the point on the surface which is the foucus of the earthquake,in terms of Covid19 it is beiung used to describe the area where the virus is most active
+Standor is the epicenter of Silicon Valley.
+
+formite/ˈfoʊmaɪt/
+an object or objects that becomes contaminated with infected organisms
