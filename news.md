@@ -170,6 +170,7 @@ High blood pressure can cause degeneration of the heart muscles.
 **Contagious**
 **susceptible**
 **interpolate**
+ **self-esteem:** 
 
 
 decline/dɪˈklaɪn/
@@ -193,3 +194,6 @@ interpolate /ɪnˈtɝː.pə.leɪt/
 to add a number of item into the middle of a series,caculated based on numbers or items before and after it.
 They use special software to intelligently interpolate the missing values.
 
+self esteem/ɪˈstiːm/
+belief or confidence in your own ability and value.
+eg: The compliments she received after the presentation boosted her self-esteem.
