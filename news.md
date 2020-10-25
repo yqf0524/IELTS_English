@@ -167,11 +167,37 @@ High blood pressure can cause degeneration of the heart muscles.
 
 
 **decline**
-**Contagious**
-**susceptible**
-**interpolate**
- **self-esteem:** 
 
+**Contagious**
+
+**susceptible**
+
+**interpolate**
+
+ **self-esteem**
+ 
+ 
+ 
+ **curfew**
+
+**epicentre**
+
+**fomite**
+
+**acute respiratory problems**
+
+**to contain an outbreak**
+
+
+**a new strain**
+
+**misinformation**
+
+**incubation period**
+
+**herd immunity**
+
+**contaminate**
 
 decline/dɪˈklaɪn/
 to graudually become less,worse or lower
