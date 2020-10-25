@@ -233,5 +233,34 @@ epicenter/ˈep.ɪ.sen.tər/
 the point on the surface which is the foucus of the earthquake,in terms of Covid19 it is beiung used to describe the area where the virus is most active
 Standor is the epicenter of Silicon Valley.
 
-formite/ˈfoʊmaɪt/
+fomite/ˈfoʊmaɪt/
 an object or objects that becomes contaminated with infected organisms
+A fomite is an inanimate object such as a table or a doorknob.
+
+acute respiratory  /ˈres.pə.rə.tɔːr.i/ problems
+acute-quickly becomes severe respiratory prblems=breathing difficulties
+At the end of Januar,a fish seller suffering from acute respiratory problems checked himself in to the Hospital.
+
+to contain an outbreak
+to control the spread of an illness
+If you can detect and contain an outbreak early enough you can prevent it from this global spread.
+
+a new strain
+a genetic variant or subtype,
+Covid 19 is a new strain to coronavirus.
+
+misinformation
+false or inaccurate information
+We are the victims of misinformation about this proposed new rules.
+
+incubation /ˌɪŋ.kjəˈbeɪ.ʃən/ period
+the time between exposure to an illness and when the symptoms start to become apparent
+How long is the incubation period of COVID19?
+
+herd/hɝːd/ immunity
+When a significant proportion of the population are immune to  disease either through a vaccine or by having naturally built up immunity by having had the disease and recovered form it
+With herd immunity, there aren't enough susceptibles in the population to sustain an epidemic.
+
+contaminate /kənˈtæm.ə.neɪt/
+to make something less pure or make it poisonous
+Much of the coast has been contaminated by nuclear waste.
