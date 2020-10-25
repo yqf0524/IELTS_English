@@ -167,8 +167,29 @@ High blood pressure can cause degeneration of the heart muscles.
 
 
 **decline**
-
 **Contagious**
+**susceptible**
+**interpolate**
 
 
-FUCK U!
+decline/dɪˈklaɪn/
+to graudually become less,worse or lower
+His interest in the project declined after his wife died.
+to refuse
+He declined my offer.
+
+contagious /kənˈteɪ.dʒəs/
+likely to spread to and affect others
+This is a contagious disease.
+Her enthusiasm is contagious.
+
+susceptible/səˈsep.tə.bəl/
+easily influenced or harmed by something
+Patients with liver disease may be susceptible to infection
+able to be understood ,proved ,explianed etc in a particular way
+the problem is not susceptible of simple solution.
+
+interpolate /ɪnˈtɝː.pə.leɪt/
+to add a number of item into the middle of a series,caculated based on numbers or items before and after it.
+They use special software to intelligently interpolate the missing values.
+
