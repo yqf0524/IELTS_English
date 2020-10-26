@@ -253,7 +253,7 @@ Stanfor is the epicenter of Silicon Valley.
 
 fomite/ˈfoʊmaɪt/
 
-an object or objects that becomes contaminated with infected organisms
+an object  that becomes contaminated with infected organisms
 
 A fomite is an inanimate object such as a table or a doorknob.
 
