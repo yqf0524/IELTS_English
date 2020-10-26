@@ -175,12 +175,12 @@ High blood pressure can cause degeneration of the heart muscles.
 **interpolate**
 
  **self-esteem**
+
  
- 
- 
+
  **curfew**
 
-**epicentre**
+**epicenter**
 
 **fomite**
 
@@ -200,7 +200,8 @@ High blood pressure can cause degeneration of the heart muscles.
 **contaminate**
 
 decline/dɪˈklaɪn/
-to graudually become less,worse or lower
+
+to gradually become less,worse or lower
 
 His interest in the project declined after his wife died.
 
@@ -222,13 +223,13 @@ easily influenced or harmed by something
 
 Patients with liver disease may be susceptible to infection
 
-able to be understood ,proved ,explianed etc in a particular way
+able to be understood ,proved ,explained etc. in a particular way
 
 the problem is not susceptible of simple solution.
 
 interpolate /ɪnˈtɝː.pə.leɪt/
 
-to add a number of item into the middle of a series,caculated based on numbers or items before and after it.
+to add a number of item into the middle of a series, calculated based on numbers or items before and after it.
 
 They use special software to intelligently interpolate the missing values.
 
@@ -247,9 +248,9 @@ He was shot for breaking the curfew.
 
 epicenter/ˈep.ɪ.sen.tər/
 
-the point on the surface which is the foucus of the earthquake,in terms of Covid19 it is beiung used to describe the area where the virus is most active
+the point on the surface which is the focus of the earthquake,in terms of Covid19 it is being used to describe the area where the virus is most active
 
-Stanfor is the epicenter of Silicon Valley.
+Stanford is the epicenter of Silicon Valley.
 
 fomite/ˈfoʊmaɪt/
 
@@ -259,9 +260,9 @@ A fomite is an inanimate object such as a table or a doorknob.
 
 acute respiratory  /ˈres.pə.rə.tɔːr.i/ problems
 
-acute-quickly becomes severe respiratory prblems=breathing difficulties
+acute-quickly becomes severe respiratory problems=breathing difficulties
 
-At the end of Januar,a fish seller suffering from acute respiratory problems checked himself in to the Hospital.
+At the end of January,a fish seller suffering from acute respiratory problems checked himself in to the Hospital.
 
 to contain an outbreak
 
@@ -298,3 +299,189 @@ contaminate /kənˈtæm.ə.neɪt/
 to make something less pure or make it poisonous
 
 Much of the coast has been contaminated by nuclear waste.
+
+
+
+
+
+**patient zero**
+
+**persistent cough**
+
+**pneumonia**
+
+**precautionary measures**
+
+**to ramp up**
+
+
+
+**stockpiling**
+
+**stringent**
+
+**super-spreader**
+
+**ventilators**
+
+**vigorous**
+
+
+
+**wheeze**
+
+**zoonotic**
+
+**Rabie**
+
+**lash**
+
+**deafening**
+
+****
+
+
+
+patient zero
+
+the first person to contract the disease
+
+It is significant to find out who the patient zero is.
+
+
+
+persistent cough
+
+cough and it doesnt go away
+
+The final symptom is usually a persistent  cough.
+
+
+
+pneumonia /nuːˈmoʊ.njə/
+
+a serious illness in which one or both lungs become red and swollen and filled with liquid
+
+People who are bedridden can easily get pneumonia.
+
+
+
+precautionary measures
+
+steps taken in order to be safe
+
+People try to slow this pandemic down by just taking basic precautionary measures like washing your hands a lot.
+
+
+
+ramp-up<spoken>
+
+a large increase in activity or in the level of something
+
+ ramp up 
+
+increase
+
+When you ramp up  degree at this kind of speed, we dont know what  happens.
+
+
+
+stockpiling /ˈstɑːk.paɪ.lɪŋ/
+
+the practice of storing a large supply of something for future use
+
+Increasing instability is encouraging stockpiling.
+
+
+
+stringent /ˈstrɪn.dʒənt/
+
+having a very severe effect or being extremely limiting
+
+The city has stringent fire-safety standards.
+
+
+
+super-spreader
+
+someone who infects many more people with a disease than most other infected people do
+
+It is impossible to know who will be a super-spreader and who will not.
+
+
+
+ventilator
+
+a machine that helps people breathe correctly by allowing air to flow in and out of their lungs
+
+He was brought into intensive care shortly after the accident and immediately put on a ventilator.
+
+
+
+vigorous /ˈvɪɡ.ɚ.əs/
+
+very forceful or energetic
+
+This is a time for vigorous and positive action!
+
+
+
+wheeze /wiːz/
+
+make a rough noise when breathing due to breathing difficulties
+
+I could hear the old man behind me wheezing.
+
+
+
+zoonotic /ˌzuː.əˈnɑː.t̬ɪk/
+
+used to refer to a disease that can spread from animals to humans
+
+Rabies is perhaps the best-known and most feared of all zoonotic diseases.
+
+
+
+Rabies /ˈreɪ.biːz/
+
+a serious disease of the nervous system that can cause death
+
+Dogs,cats,foxes,and bats can all carry rabies.
+
+
+
+lash /læʃ/
+
+To hit with a lot of force
+
+The sound of the rain lashing against the windows was deafening.
+
+
+
+deafening  /ˈdef.ən.ɪŋ/
+
+extremely loud
+
+The music was deafening.
+
+
+
+
+
+
+
+***********************************************************************
+
+**alcohol based antimicrobial hand sanitiser**
+
+**altruism**/**altruistic**
+
+
+
+**bedridden**
+
+bedridden 
+
+having to stay in bed because of illness or injury
+
+His aunt was 93 and bedridden.
