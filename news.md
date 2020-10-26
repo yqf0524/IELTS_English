@@ -201,66 +201,100 @@ High blood pressure can cause degeneration of the heart muscles.
 
 decline/dɪˈklaɪn/
 to graudually become less,worse or lower
+
 His interest in the project declined after his wife died.
+
 to refuse
+
 He declined my offer.
 
 contagious /kənˈteɪ.dʒəs/
+
 likely to spread to and affect others
+
 This is a contagious disease.
+
 Her enthusiasm is contagious.
 
 susceptible/səˈsep.tə.bəl/
+
 easily influenced or harmed by something
+
 Patients with liver disease may be susceptible to infection
+
 able to be understood ,proved ,explianed etc in a particular way
+
 the problem is not susceptible of simple solution.
 
 interpolate /ɪnˈtɝː.pə.leɪt/
+
 to add a number of item into the middle of a series,caculated based on numbers or items before and after it.
+
 They use special software to intelligently interpolate the missing values.
 
 self esteem/ɪˈstiːm/
+
 belief or confidence in your own ability and value.
+
 eg: The compliments she received after the presentation boosted her self-esteem.
 
 
 curfew
+
 a rule that everyone must stay at home between particular times
+
 He was shot for breaking the curfew.
 
 epicenter/ˈep.ɪ.sen.tər/
+
 the point on the surface which is the foucus of the earthquake,in terms of Covid19 it is beiung used to describe the area where the virus is most active
+
 Standor is the epicenter of Silicon Valley.
 
 fomite/ˈfoʊmaɪt/
+
 an object or objects that becomes contaminated with infected organisms
+
 A fomite is an inanimate object such as a table or a doorknob.
 
 acute respiratory  /ˈres.pə.rə.tɔːr.i/ problems
+
 acute-quickly becomes severe respiratory prblems=breathing difficulties
+
 At the end of Januar,a fish seller suffering from acute respiratory problems checked himself in to the Hospital.
 
 to contain an outbreak
+
 to control the spread of an illness
+
 If you can detect and contain an outbreak early enough you can prevent it from this global spread.
 
 a new strain
+
 a genetic variant or subtype,
+
 Covid 19 is a new strain to coronavirus.
 
 misinformation
+
 false or inaccurate information
+
 We are the victims of misinformation about this proposed new rules.
 
 incubation /ˌɪŋ.kjəˈbeɪ.ʃən/ period
+
 the time between exposure to an illness and when the symptoms start to become apparent
+
 How long is the incubation period of COVID19?
 
 herd/hɝːd/ immunity
+
 When a significant proportion of the population are immune to  disease either through a vaccine or by having naturally built up immunity by having had the disease and recovered form it
+
 With herd immunity, there aren't enough susceptibles in the population to sustain an epidemic.
 
 contaminate /kənˈtæm.ə.neɪt/
+
 to make something less pure or make it poisonous
+
 Much of the coast has been contaminated by nuclear waste.
