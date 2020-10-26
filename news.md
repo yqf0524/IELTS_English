@@ -249,7 +249,7 @@ epicenter/ˈep.ɪ.sen.tər/
 
 the point on the surface which is the foucus of the earthquake,in terms of Covid19 it is beiung used to describe the area where the virus is most active
 
-Standor is the epicenter of Silicon Valley.
+Stanfor is the epicenter of Silicon Valley.
 
 fomite/ˈfoʊmaɪt/
 
