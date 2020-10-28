@@ -1,3 +1,147 @@
+
+**alcohol based antimicrobial hand sanitizer**
+
+**microbe**
+
+**cast one's ballot**/ˈbæl.ət/
+
+**bedridden**
+
+**incumbent**
+
+***
+
+**alcohol based antimicrobial hand sanitizer**
+
+antimicrobial/ˌæn.t̬i.maɪˈkroʊ.bi.əl/
+
+able to destroy harmful microbes
+
+sanitizer/ˈsæn.ə.taɪ.zɚ/
+
+a liquid for washing your hands in order to get rid of harmful bacteria
+e.g. He was constantly rubbing his hands with alchhol based antimicrobial hand sanitizer because he had a lot of hands to shake.
+
+
+**microbe**/ˈmaɪ.kroʊb/
+
+a very samll living thin,eps. one that caused disease
+
+**incumbent**/ɪnˈkʌm.bənt/
+the person who has a particular officcial position,esp. an elected one(referring to the present time)
+Trum is the incumbent.
+
+**cast one's ballot**/ˈbæl.ət/
+
+to vote in an election
+
+Everyone casts his or her ballot in secret.He currently hold the office.
+
+**bedridden**
+
+bedridden 
+
+having to stay in bed because of illness or injury
+
+His aunt was 93 and bedridden.
+
+***
+**altruism**
+
+**campain trail**
+
+**altruistic**
+
+**rallies**
+
+**canvassing**
+***
+
+**altruism** /ˈæl.tru.ɪ.zəm/
+
+willingness to do things that bring advantages to others,even if it results in disadvantage for yourself
+
+Nobody believes those people are donating money the presodent's party pureley out of altruism.
+
+**campain trail** /kæmˈpeɪn ˌtreɪl/
+
+That means all the trips and visits a candidates will make across the contry as they're campaigning.
+
+She went on the campaign trail around the Southern states.
+
+
+**altruistic** /ˌæl.truˈɪs.tɪk/
+
+adj to altruism
+
+I doubt whether her motives for donating the money are altruistic.
+
+**rally(rallies)**
+
+a public meeting of a large group of people,esp. supporters of a particular opinion
+
+5,000 people held an anti-nuclear rally.
+
+**canvass** /ˈkæn.vəs/
+
+to try to get political support or votes, espc. by visiting all the houses in an area
+
+I've benn out canvassing for the Labour Party every evening this week.
+
+***
+**polls**
+
+**exit polls**
+
+**pollster**
+
+**front runner**
+
+**flip-flopper**
+***
+
+**polls**/poʊlz/
+
+the places where people vote in a political election(polling sation)
+
+The polls close in an hour.
+
+How are we doing in the polls?
+
+
+**exit polls**
+
+The activity of asking people about how they voted as they leave a polling station,to try to discover who will win the election
+
+According to exit polls,no party will have an overall majority.
+
+
+**pollster**
+
+a person who does opinion polls
+
+It turned out that the pollsters had got their predictions wrong about the outcome of the election.
+
+**front runner**
+
+the person or organization that is most likely to win something
+
+She is one of the front-runners in the contest.
+
+**flip-flopper**
+
+Some one has changed his or her positio/mind on something,to appeal to voter.
+
+In fact some might call him a flip-flopper.But who cares?
+***
+
+
+***
+eligible
+electorate
+
+****************
+
 **death toll**
 
 **staggering**  
@@ -471,17 +615,3 @@ The music was deafening.
 
 
 ***********************************************************************
-
-**alcohol based antimicrobial hand sanitiser**
-
-**altruism**/**altruistic**
-
-
-
-**bedridden**
-
-bedridden 
-
-having to stay in bed because of illness or injury
-
-His aunt was 93 and bedridden.
