@@ -46,24 +46,47 @@ having to stay in bed because of illness or injury
 His aunt was 93 and bedridden.
 
 ***
-**altruism**/**altruistic**
+**altruism**
 
 **campain trail**
 
-**altruism**/**altruistic**
+**altruistic**
 
 **rallies**
 
 **canvassing**
 ***
 
-**campain trail**
+**altruism** /ˈæl.tru.ɪ.zəm/
+
+willingness to do things that bring advantages to others,even if it results in disadvantage for yourself
+
+Nobody believes those people are donating money the presodent's party pureley out of altruism.
+
+**campain trail** /kæmˈpeɪn ˌtreɪl/
+
 That means all the trips and visits a candidates will make across the contry as they're campaigning.
 
-**rallies**
+She went on the campaign trail around the Southern states.
 
-**canvassing**
 
+**altruistic** /ˌæl.truˈɪs.tɪk/
+
+adj to altruism
+
+I doubt whether her motives for donating the money are altruistic.
+
+**rally(rallies)**
+
+a public meeting of a large group of people,esp. supporters of a particular opinion
+
+5,000 people held an anti-nuclear rally.
+
+**canvass** /ˈkæn.vəs/
+
+to try to get political support or votes, espc. by visiting all the houses in an area
+
+I've benn out canvassing for the Labour Party every evening this week.
 
 ***
 **polls**
@@ -77,18 +100,39 @@ That means all the trips and visits a candidates will make across the contry as 
 **flip-flopper**
 ***
 
-**polls**
+**polls**/poʊlz/
+
+the places where people vote in a political election(polling sation)
+
+The polls close in an hour.
+
 How are we doing in the polls?
-Heading to the polls(polling sation)
+
 
 **exit polls**
 
+The activity of asking people about how they voted as they leave a polling station,to try to discover who will win the election
+
+According to exit polls,no party will have an overall majority.
+
+
 **pollster**
+
+a person who does opinion polls
+
+It turned out that the pollsters had got their predictions wrong about the outcome of the election.
 
 **front runner**
 
+the person or organization that is most likely to win something
+
+She is one of the front-runners in the contest.
+
 **flip-flopper**
+
 Some one has changed his or her positio/mind on something,to appeal to voter.
+
+In fact some might call him a flip-flopper.But who cares?
 ***
 
 
