@@ -1,3 +1,103 @@
+
+**alcohol based antimicrobial hand sanitizer**
+
+**microbe**
+
+**cast one's ballot**/ˈbæl.ət/
+
+**bedridden**
+
+**incumbent**
+
+***
+
+**alcohol based antimicrobial hand sanitizer**
+
+antimicrobial/ˌæn.t̬i.maɪˈkroʊ.bi.əl/
+
+able to destroy harmful microbes
+
+sanitizer/ˈsæn.ə.taɪ.zɚ/
+
+a liquid for washing your hands in order to get rid of harmful bacteria
+e.g. He was constantly rubbing his hands with alchhol based antimicrobial hand sanitizer because he had a lot of hands to shake.
+
+
+**microbe**/ˈmaɪ.kroʊb/
+
+a very samll living thin,eps. one that caused disease
+
+**incumbent**/ɪnˈkʌm.bənt/
+the person who has a particular officcial position,esp. an elected one(referring to the present time)
+Trum is the incumbent.
+
+**cast one's ballot**/ˈbæl.ət/
+
+to vote in an election
+
+Everyone casts his or her ballot in secret.He currently hold the office.
+
+**bedridden**
+
+bedridden 
+
+having to stay in bed because of illness or injury
+
+His aunt was 93 and bedridden.
+
+***
+**altruism**/**altruistic**
+
+**campain trail**
+
+**altruism**/**altruistic**
+
+**rallies**
+
+**canvassing**
+***
+
+**campain trail**
+That means all the trips and visits a candidates will make across the contry as they're campaigning.
+
+**rallies**
+
+**canvassing**
+
+
+***
+**polls**
+
+**exit polls**
+
+**pollster**
+
+**front runner**
+
+**flip-flopper**
+***
+
+**polls**
+How are we doing in the polls?
+Heading to the polls(polling sation)
+
+**exit polls**
+
+**pollster**
+
+**front runner**
+
+**flip-flopper**
+Some one has changed his or her positio/mind on something,to appeal to voter.
+***
+
+
+***
+eligible
+electorate
+
+****************
+
 **death toll**
 
 **staggering**  
@@ -471,17 +571,3 @@ The music was deafening.
 
 
 ***********************************************************************
-
-**alcohol based antimicrobial hand sanitiser**
-
-**altruism**/**altruistic**
-
-
-
-**bedridden**
-
-bedridden 
-
-having to stay in bed because of illness or injury
-
-His aunt was 93 and bedridden.
