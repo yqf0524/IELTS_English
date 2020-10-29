@@ -20,6 +20,7 @@ able to destroy harmful microbes
 sanitizer/ˈsæn.ə.taɪ.zɚ/
 
 a liquid for washing your hands in order to get rid of harmful bacteria
+
 e.g. He was constantly rubbing his hands with alchhol based antimicrobial hand sanitizer because he had a lot of hands to shake.
 
 
@@ -29,13 +30,14 @@ a very samll living thin,eps. one that caused disease
 
 **incumbent**/ɪnˈkʌm.bənt/
 the person who has a particular officcial position,esp. an elected one(referring to the present time)
-Trum is the incumbent.
+
+Trump is the incumbent.He currently holds the office.
 
 **cast one's ballot**/ˈbæl.ət/
 
 to vote in an election
 
-Everyone casts his or her ballot in secret.He currently hold the office.
+Everyone casts his or her ballot in secret.
 
 **bedridden**
 
