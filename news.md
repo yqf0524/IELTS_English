@@ -1,3 +1,107 @@
+**electorate** /iˈlek.tɚ.ət/
+
+refers to everyone who is eligible to vote.
+
+Children under 18 are not part of the electorate.
+
+**voter turnout**
+
+the percentage of eligible voters who cast a ballot in an election.
+
+But what you may not know is that American voter turnout ranks near the bottom of all countries in the entire world,138th of  172 nations.
+
+**early voting**
+
+Early voting,also called advance polling or pre-poll voting is a convenience voting process by which voters in a public election can vote prior to the scheduled election day.
+
+The election is April 5th,although early voting is open right now.
+
+**absentee ballot** /ˌæb.sən.tiː ˈbæl.ət/
+
+a system of voting in which people send their votes by post when they cannot be present at an election.
+
+Didnt bother to get an absentee ballot,but i didnt like either one of the candidates.
+
+**mail-in ballot**
+
+people vote by mail
+
+Somes states conduct their elections through a mail-in ballot.
+
+
+
+
+
+***
+
+**provisional  ballot** /prəˈvɪʒ.ən.əl/
+
+In elections in the United States, a provisinal ballot is used to record a vote when there are questions about a given votes' eligibility/ˌel.ə.dʒəˈbɪl.ə.t̬i/ that must be resolved before the vote can count.
+
+If yout show up to the polls and see that your name isnt on the rolls, you can ask to fill out what's called a provisional ballot.
+
+**eligible** /ˈel.ə.dʒə.bəl/
+
+having the necessay qualities or satisfying the necessary conditions
+
+Are you eligible for early retirement?
+
+You might be eligible for a grant.
+
+Only people over 18 are eligible to vote.
+
+**grant**/ɡrænt/
+
+an amount of money give espc. by the government to a person or organization for a special purpose
+
+They gave/awarded her a grant to study abroad for one year.
+
+**off the charts**
+
+outside of the normal range of measurement; beyond expectations,at a very high level,extemely popular or successful
+
+The new restaurant is totally off the charts.
+
+**adrenaline**/əˈdrɛn(ə)lɪn/
+
+a hormone/ˈhɔːr.moʊn/ produced by the body when a person is frightend,angry or excited which makes the heart beat faster abd prepare the body to react to danger.
+
+This woman's adrenaline levels are off the chart here.
+
+***
+
+**concede**/kənˈsiːd/
+
+to admit ,ofen unwillingly/ʌnˈwɪl.ɪŋ.li/ ,that something is true
+
+"Well okay,perhaps I was a little hard on her",he conceded.
+
+**hormone**/ˈhɔːr.moʊn/
+
+any of various chemicals made  by living cells that influeunce the development ,growth,sex etc. of an animal and are carried arround the body in the blood.
+
+One of the main ones is a hormone called insulin.
+
+**insulin**/ˈɪn.sə.lɪn/
+
+a hormone in the body that controls the amount of sugar in the  blood.
+
+She has to have insulin injections for her diabetes /ˌdaɪ.əˈbiː.t̬əs/.
+
+**concession speech**
+
+In politics, a concession(speech) is the act of a losing candidate publicly yielding to a winning candidate after an election after the overall result of the vote has become clear.
+
+And if he got the most votes,then it would be my expectation of Hillary Clinton to offer a gracious concession speech and pledge to work with him.
+
+**pledge **/pledʒ/
+
+to make a serious or formal promise to give or do something
+
+We are asking people to pledge their support for our campaign.
+
+***
+
 
 **alcohol based antimicrobial hand sanitizer**
 
