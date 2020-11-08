@@ -1,3 +1,100 @@
+**infer**/ɪnˈfɜːr/
+
+to form an opinion or guess that something is true because of the information that you have
+
+What do you infer from her refusal?
+
+**back one out**
+
+poop
+
+I am gonna back one out.
+
+**iterate**/ˈɪt̬.ə.reɪt/
+
+to repeat a process
+
+It is now clear that we may iterate these constructions.
+
+**apprehensive**/ˌæp.rəˈhen.sɪv/
+
+feeling worried about something that you are going to do or that is going to happen
+
+I'm very apprehensive about tomorrow's meeting.
+
+**retain**  /rɪˈteɪn/
+
+to keep or continue to have something
+
+He managed to retain his dignity throughout the performance.
+
+***
+
+**sole**
+
+being one only single
+
+My sole objective is to make the information more widely available.
+
+**objective**/əbˈdʒek.tɪv/
+
+something that you plan to do or achieve
+
+Her prime objective now is simply to stay in power
+
+**concession** /kənˈseʃ.ən/
+
+something that is allowed or given up,often in order to end a disagreement
+
+Both sides involved in the conflict made some concessions in yesterday's talks.
+
+**counterpart** /ˈkaʊn.t̬ɚ.pɑːrt/
+
+a person o thing that has the same purpose as another one in a different place or organization
+
+The prime minister is to meet his European counterparts to discuss the war against drugs.
+
+**sediment**/ˈsed.ə.mənt/
+
+solid material,such as dirt or minerals,that falls to the bottom of a liquid.
+
+There was a brown sediment in the bottom of the bottle.
+
+***
+
+**tetrahedral dice** \ ˌte-trə-ˈhē-drəl \
+
+being a polyhedral angle with four faces
+
+Tetrahedral dice have many survival advantages over the cubular dice ,among which is that they are very difficult to pick up because they're pointy.
+
+**polyhedron ** /ˌpɑː.liˈhiː.drɑːn/
+
+a solid shape with four or more flat surface
+
+A cube is a polyhedron.
+
+**applicable**/əˈplɪk.ə.bəl/
+
+affecting or relating to a person or thing
+
+This part of the law is only applicable to companies employing more than five people.
+
+**pitfalls** /ˈpɪt.fɑːl/
+
+a likely mistake or problem in a situation
+
+There's a video that tells new students about pitfalls to avoid.
+
+**nontheless**/ˌnʌn.ðəˈles/
+
+despite what has just been said or done
+
+They are some obsolete stuff in that book,but it’s an important read nonetheless.
+
+
+
+***
 **electorate** /iˈlek.tɚ.ət/
 
 refers to everyone who is eligible to vote.
