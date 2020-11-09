@@ -44,7 +44,7 @@ Her prime objective now is simply to stay in power
 
 **concession** /kənˈseʃ.ən/
 
-something that is allowed to given up,often in order to end a disagreement
+something that is allowed or given up,often in order to end a disagreement
 
 Both sides involved in the conflict made some concessions in yesterday's talks.
 
