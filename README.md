@@ -1,5 +1,14 @@
 # IELTS_English
 Words you must remember for passing IELTS.
+
+
+
+
+<launch>
+    <arg name="model" />
+    <!-- 加载机器人模型参数 -->
+    <param name="robot_description" command="$(find xacro)/xacro --inorder $(find probot_description)/urdf/probot_anno.xacro" />
+
     <!-- 设置GUI参数，显示关节控制插件 -->
     <param name="use_gui" value="true"/>
 
