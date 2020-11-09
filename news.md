@@ -44,13 +44,13 @@ Her prime objective now is simply to stay in power
 
 **concession** /kənˈseʃ.ən/
 
-something that is allowed or given up,often in order to end a disagreement
+something that is allowed to given up,often in order to end a disagreement
 
 Both sides involved in the conflict made some concessions in yesterday's talks.
 
 **counterpart** /ˈkaʊn.t̬ɚ.pɑːrt/
 
-a person o thing that has the same purpose as another one in a different place or organization
+a person or thing that has the same purpose as another one in a different place or organization
 
 The prime minister is to meet his European counterparts to discuss the war against drugs.
 
@@ -86,11 +86,12 @@ a likely mistake or problem in a situation
 
 There's a video that tells new students about pitfalls to avoid.
 
-**nontheless**/ˌnʌn.ðəˈles/
+**nonetheless**/ˌnʌn.ðəˈles/
 
 despite what has just been said or done
 
 They are some obsolete stuff in that book,but it’s an important read nonetheless.
+
 
 
 
