@@ -1,3 +1,100 @@
+**elaborate** /iˈlæb.ɚ.ət/
+
+containing a lot of careful detail
+
+You want a plain blouse to go with that skirt-nothing too elaborate.
+
+They're making the most elaborate preparations for the wedding.
+
+**fervid/fervent**/fɝː.vɪd/  /ˈfɝː.vənt/
+
+used to describe beliefs that are strongly and sincerely felt 
+
+She was a fervent supporter of art and culture.
+
+**orchard**/ˈɔːr.tʃɚd/
+
+an area of land where fruit trees(but not orange trees or other citrus trees) are grown
+
+His is like a peach orchard/ˈɔːr.tʃɚd/ dog.
+
+**citrus** /ˈsɪt.rəs/
+
+any of a group of plants that produce acidic /əˈsɪd.ɪk/ fruits with a lot of juice
+
+Oranges,lemons,limes,and grapefruit are types of citrus fruit.
+
+**frantic** /ˈfræn.t̬ɪk/
+
+almost out of control because of extreme emotion such as worry 
+
+Where on earth have you been? We've ben frantic with worry.
+
+***
+
+**confidant** /ˈkɑːn.fə.dænt/
+
+a person you trust and share your feelings and secrets with 
+
+Her brother is her closet confidant.
+
+**peculiar** /pɪˈkjuːl.jɚ/
+
+unusual and strange,sometimes in an unpleasant way
+
+What a peculiar smell.
+
+**mononym**/ˈmɒnənɪm/
+
+a person who is famous enough to be known only by one name,usually the first name
+
+**ice rink** /rɪŋk/
+
+a large flat surface of ice for skating
+
+This ice rink is only around at Christmas time.
+
+**mere** /mɪr/
+
+used to emphasize that something is not large or important
+
+The plane crashed mere minutes after take-off.
+
+***
+
+**complicit**/kəmˈplɪs.ɪt/
+
+involved in or knowing about a crime
+
+She was accused of being complicit in her husband's death.
+
+**invective**/ɪnˈvek.tɪv/
+
+criticism that is very forceful ,unkind and often rude
+
+A stream of invective from some sectors of the press continues to assail /əˈseɪl/the government.
+
+**mediation**/ˌmiː.diˈeɪ.ʃən/
+
+The process of talking to two separate people or groups involved in a disagreement to try to help them to agree or find a solutions to their problems.
+
+Last-minute attempts at mediation failed.
+
+In divorce cases where there are children,mediation is preferable to going to court.
+
+**parole** /pəˈroʊl/
+
+permission for prisoner to be released before their period in prison is finished,with the agreement that they will behave well
+
+He's been released on parole.
+
+**assail**/əˈseɪl/
+
+to attack someone violently or criticize someone strongly
+
+The victim had been assailed with repeated blows to the head and body.
+
+
 **infer**/ɪnˈfɜːr/
 
 to form an opinion or guess that something is true because of the information that you have
