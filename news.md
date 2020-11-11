@@ -1,3 +1,96 @@
+**defy** /dɪˈfaɪ/
+
+to refuse to obey a person,decision,law etc.
+
+It is rare to see children openly defying their teachers.
+
+**defect**/dɪˈfekt/
+
+v. to leave a country,political party,etc., especially in order to join an opposing one
+
+The British spy defected to the Soviet Union.
+
+**Gastroenteritis**/ˌɡæs.trəʊˌen.təˈraɪ.tɪs/
+
+an illness that causes the stomach and bowels to become swollen and painful
+
+Identification of groups of people vulnerable to gastroenteritis is useful to guide resource allocation.
+
+**grouchy** /ˈɡraʊ.tʃi/
+
+easily annoyed and complaining
+
+Don't be so grouchy!
+
+**warehouse**/ˈwer.haʊs/
+
+a large building for storing things before they are sold used or sent out to shops
+
+The good have been sitting in a warehouse for months because of strike has prevented distribution.
+
+***
+
+***like rats fleeing a sinking ship**
+
+The  idiom used in reference to people abandoning an enterprise once it seems likely to fail
+
+**detest**
+
+to hate someone or something very much
+
+I detest any kind of cruelty.
+
+**en route** /ˌɑːn ˈruːt/
+
+on the way to or from somewhere
+
+I stopped en route and got some wine.
+
+**funds**/ˈfʌndz/
+
+money often money for  a specific purpose
+
+We raise our own funds.We make our own investments.
+
+**inferior** /ɪnˈfɪr.i.ɚ/
+
+not god or not as good as someone or something
+
+These products are inferior to those we bought last year.
+
+***
+
+**exhilarating** /ɪɡˈzɪl.ə.reɪ.t̬ɪŋ/
+
+making you feel very excited and happy
+
+Innovative work can be very exhilarating.
+
+**rejuvenating**/rɪˈdʒuː.vən.eɪt/
+
+to make someone look or feel young and energetic again
+
+She felt rejuvenate by her fortnight in the Bahamas.
+
+**fortnight** /ˈfɔːrt.naɪt/
+
+a period of two weeks
+
+We spent a fortnight in Rome looking at all the sights.
+
+**endorphin**/enˈdɔːr.fɪn/
+
+a chemical naturally released in the brain to reduce pain,that in large amounts can make you feel relaxed or full of energy
+
+I can actually feel my body releasing endorphins.
+
+**treadmill** /ˈtred.mɪl/
+
+an exercise machine that consist of a moving strip or two step-like parts on which you walk without moving forward
+
+Or,You can do this while you're on the treadmill.
+
+***
 **elaborate** /iˈlæb.ɚ.ət/
 
 containing a lot of careful detail
