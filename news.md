@@ -24,9 +24,9 @@ Don't be so grouchy!
 
 **warehouse**/ˈwer.haʊs/
 
-a large building for storing things before they are sold used or sent out to shops
+a large building for storing things before they are sold, used, or sent out to shops
 
-The good have been sitting in a warehouse for months because of strike has prevented distribution.
+The goods have been sitting in a warehouse for months because of strike has prevented distribution.
 
 ***
 
@@ -48,7 +48,7 @@ I stopped en route and got some wine.
 
 **funds**/ˈfʌndz/
 
-money often money for  a specific purpose
+money, often money for  a specific purpose
 
 We raise our own funds.We make our own investments.
 
@@ -66,11 +66,11 @@ making you feel very excited and happy
 
 Innovative work can be very exhilarating.
 
-**rejuvenating**/rɪˈdʒuː.vən.eɪt/
+**rejuvenate**/rɪˈdʒuː.vən.eɪt/
 
 to make someone look or feel young and energetic again
 
-She felt rejuvenate by her fortnight in the Bahamas.
+She felt rejuvenated by her fortnight in the Bahamas.
 
 **fortnight** /ˈfɔːrt.naɪt/
 
@@ -86,7 +86,7 @@ I can actually feel my body releasing endorphins.
 
 **treadmill** /ˈtred.mɪl/
 
-an exercise machine that consist of a moving strip or two step-like parts on which you walk without moving forward
+an exercise machine that consist of a moving strip on which you walk without moving forward
 
 Or,You can do this while you're on the treadmill.
 
