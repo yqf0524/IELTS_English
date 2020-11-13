@@ -1,3 +1,82 @@
+12.11.2020 Thursday
+
+**job prospect** = the possibility of promotion or higher level work in future
+
+I remember an interview when the employer told me there were excellent job prospects in their firm for young people. In reality, this was not really true.
+
+**prospect **= the possibility that something good might happen in the future
+
+Is there any prospect of the weather improving?
+
+**appraisal **= the act of examining someone or something in order to judge their qualities, success, or needs.
+
+The Newspaper gave an editorial appraisal of the government's achievements  of the past year.
+
+**to outsource** = to stop doing work inside the company and send it to other companies or other countries, usually to save money
+
+Some companies outsource to cheaper locations to cut costs.
+
+Many American companies have outsourced their IT operations to Asian countries, where productivity is similar and salaries are lower.
+
+**work/life balance** = the ability to work hard but also enjoy a good quality family and social life.
+
+Furthermore, the work/life balance of the staff will hopefully be improved, because their leisure time will be more fulfilling.
+
+-----
+
+**perks** = reward from an employer which are not financial (eg free lunches, a car)
+
+Personally, I'd like to work for a company that gives lots of perks, because I would find this very enjoyable.
+
+**incentive** = any reward that makes people work harder
+
+Some employers offer vacations or parties as incentives if the team hits its sales targets.
+
+**superficial** = not addressing deep or important issues
+
+I'm not a big fan of traditional music. I find the lyrics rather old-fashioned and superficial for modern listeners.
+
+**redundancy** = a situation where a worker loses their job because of changes in the company, not because of personal mistakes
+
+verb: to make someone redundant
+
+In my home town, the textile /ˈtek.staɪl/ factories have closed and many people have been made redundant.
+
+**pioneer**  /ˌpaɪəˈnɪr/ = a person who is one of the first people to do something
+
+I admire pedagogical /ˌped.əˈɡɑː.dʒɪkəl/ pioneers such as the Victorian English thinkers who began free schools for all children.
+
+-----
+
+**syllabus**  /ˈsɪl.ə.bəs/ = the content of elements taught in a specific subject
+
+The syllabus for geography at my school included volcanoes, earthquakes and tidal waves, which we found fascinating.
+
+**autonomous /ɑːˈtɑː.nə.məs/ learning** = when a student learns through independent study and research
+
+At University, you are expected to be an autonomous learner far more than at High School, which is quite exiting for me.
+
+**synthesize**  /ˈsɪn.θə.saɪz/ = to produce a substance by a chemical reaction in plants or animals
+
+There are many vitamins that the body cannot synthesize itself.
+
+**to assimilate /əˈsɪm.ə.leɪt/ knowledge** = to absorb and understand it 
+
+I always use a dictionary when I study in English, to help me assimilate new phases.
+
+**to discriminate between sources** = to decide whether one source is better or more reliable than another source
+
+Children should not study using unsupervised Internet access, because they can't discriminate between the sources of information they find.
+
+**to marshal /ˈmɑːr.ʃəl/ facts** = to organize facts in support of an idea
+
+In EILTS essays, you should marshal a few facts to support each idea in the argument.
+
+-----
+
+
+
+
 -----
 
 11.11.2020 Wednesday. 20 words
