@@ -4,11 +4,11 @@
 
 I remember an interview when the employer told me there were excellent job prospects in their firm for young people. In reality, this was not really true.
 
-**prospect **= the possibility that something good might happen in the future
+**prospect ** = the possibility that something good might happen in the future
 
 Is there any prospect of the weather improving?
 
-**appraisal **= the act of examining someone or something in order to judge their qualities, success, or needs.
+**appraisal ** = the act of examining someone or something in order to judge their qualities, success, or needs.
 
 The Newspaper gave an editorial appraisal of the government's achievements  of the past year.
 
