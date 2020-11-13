@@ -1,3 +1,70 @@
+**situated** 
+
+in a particular position
+
+The market is situated on a side street lined with shops.
+
+**infancy**/ˈɪn.fən.si/
+
+the time when someone is a baby or a very young child
+
+Her youngest child died in infancy.
+
+**accommodate**
+
+to consider and include something in a design or plan
+
+To accommodate wheelchairs, all he had to do was widen the doorways.
+
+**proximity** /prɑːkˈsɪm.ə.t̬i/
+
+the state of being near in space or time
+
+The uncertainty is particularly high for robots operating in the proximity of people.
+
+**perturb** /pɚˈtɝːb/
+
+to worry someone 
+
+Sensors are also subject to noise, which perturbs sensor measurements in unpredictable ways and hence limits the information that can be extracted.
+
+***
+
+**flaky**/ˈfleɪ.ki/
+
+coming off easily in small, flat, thin pieces
+
+behaving in a way that is strange, not responsible or not expected
+
+The central character of the play is a flaky neurotic.
+
+**state-of-the-art** /ˌsteɪt.əv.ðiːˈɑːrt/
+
+very modern
+
+The control panel uses all the newest technology and is considered state-of-the-art.
+
+**crude**/kruːd/
+
+simple and not skillfully done or made
+
+Model error are a source of uncertainty that has often been ignored in robotics, despite the fact that most robotic models used in state-of -the-art robotics systems are rather crude.
+
+**marginal**/ˈmɑːr.dʒɪ.nəl/
+
+very small in amount or effect
+
+In some robotic applications, such as assembly lines, humans can cleverly engineer the system so that uncertainly is only a marginal factor. In contrast, robots operating in residential homes or on the planets will have to cope with substantial uncertainty.
+
+**stumbling block** 
+
+something that prevents action or agreement
+
+The issue of  uncertainty has become a major stumbling block for the design of capable robot systems.
+
+***
+
+
 **defy** /dɪˈfaɪ/
 
 to refuse to obey a person,decision,law etc.
